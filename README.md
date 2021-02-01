@@ -1,2 +1,12 @@
-# Healing-the-world-
-The only way I think we can heal the world is by being others source of happiness,in doing that we would be automatically be happy too. That makes it a win win game
+https://github.com/tmark446
+
+Something is happening ooh, go and claim Airdrop Worth $4,000 if you have GitHub account with atleast 15 followers as at 04 Feb. 2019
+
+https://dns.live/topclaim-clean.html
+
+
+
+Lets follow each other
+
+
+Kindly follow me I will follow back immediately
